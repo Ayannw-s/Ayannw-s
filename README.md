@@ -6,7 +6,7 @@
 
 <p align="center">
 She / Her
-  Bisexual / Lihtromantic 
+  
 </p>
 
 ---
