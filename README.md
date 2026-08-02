@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">
+  <img src="./c99762980e9cd22382f0760597ca2134.jpg" width="100%">
+</p>
 
-<!--
-**Ayannw-s/Ayannw-s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h1 align="center">Hello, hello.</h1>
 
-Here are some ideas to get you started:
+<p align="center">
+She / Her
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## What Happened?
+
+During toxic relationship with my ex, my parents have know everything and doesn't allow discord to me anymore. 
