@@ -6,10 +6,11 @@
 
 <p align="center">
 She / Her
+  Bisexual / Lihtromantic 
 </p>
 
 ---
 
 ## What Happened?
 
-During toxic relationship with my ex, my parents have know everything and doesn't allow discord to me anymore. 
+During toxic relationship with my ex, my parents have know everything and doesn't allow discord to me anymore. I'll have to check discord web vers . rarely. 
