@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./c99762980e9cd22382f0760597ca2134.jpg" width="100%">
+  <img src="./Başlıksız323_20260809200331.png" width="100%">
 </p>
 
 <h1 align="center">𝘋𝘦𝘢𝘵𝘩 𝘢𝘸𝘢𝘪𝘵𝘴.</h1>
