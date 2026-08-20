@@ -3,4 +3,5 @@
 </p>  <h1 align=>?</h1>  <p align="center">  </p>  
 ---
 
+<img src="./blinkiesCafe-pX.gif" width="25%">  
 </p>  <h1 align="center">𝙏𝙝𝙖𝙣𝙠 𝙮𝙤𝙪 for being lo̶v̶e̶d̶ by me.</h1>  <p align="center">  </p>  
