@@ -1,7 +1,6 @@
 <p align="center">  
-  <img src="./Başlıksız342_20260817114351.png" width="100%">  
-</p>  <h1 align=>What happened?</h1>  <p align="center">  </p>  
+  <img src="./ecb2927f567f7188b8b1299f65fafe7d.gif" width="100%">  
+</p>  <h1 align=>?</h1>  <p align="center">  </p>  
 ---
 
-Nothing yet
 </p>  <h1 align="center">𝙏𝙝𝙖𝙣𝙠 𝙮𝙤𝙪 for being lo̶v̶e̶d̶ by me.</h1>  <p align="center">  </p>  
